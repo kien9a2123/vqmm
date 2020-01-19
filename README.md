@@ -1,1 +1,0 @@
-# vong-quay-may-man
